@@ -1,2 +1,3 @@
 # MY-CODING-JOURNEY-On-GITHUB-
-Hello 🤩👋 everyone this is my first time learning coding
+Hello 🤩👋 everyone this is my first time learning coding and am so excited for this beginning...
+
